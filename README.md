@@ -1,6 +1,6 @@
-# Hi there 👋
+# Hi I'm Fahri Pramuditia 👋
 
-Here are some ideas to get you started:
+Hi.. 
 
 - 🌱 I’m currently learning on STMIK TRIGUNA DHARMA
 - 👯 I’m looking to collaborate on every people on this site
